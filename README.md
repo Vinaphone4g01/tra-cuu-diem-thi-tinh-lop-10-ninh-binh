@@ -1,2 +1,4 @@
 # tra-cuu-diem-thi-tinh-lop-10-ninh-binh
 Cách tra cứu điểm thi lớp 10 tỉnh Ninh Bình 2022
+<p style="text-align: justify;">Tỉnh Ninh Bình dự kiến sẽ công bố điểm thi lớp 10 2022 vào ngày 20/6/2022. Do đó nếu bạn chưa biết <a href="https://blogvn.org/huong-dan-chi-tiet-tra-cuu-diem-thi-lop-10-tinh-ninh-binh.html"><strong>cách tra cứu điểm thi lớp 10 Ninh Bình</strong></a> thì hãy cùng <a href="http://blogvn.org" target="_blank" rel="noopener">blogvn.org</a> theo dõi trong nội dung dưới đây. Việc tra cứu điểm thi là một trong những thao tác quan trọng của học sinh, phụ huynh. Từ đó có thể dễ dàng biết được mình đã đậu hay chưa.</p>
+<p style="text-align: justify;">Hiện nay có nhiều cách để học sinh, phụ huynh xem điểm. Chỉ cần thực hiện đúng với hướng dẫn sau bạn đã nắm rõ trong tay số điểm mà mình gặt hái được. Còn chần chờ gì nữa mà không cùng nhau thực hiện nào!</p>
